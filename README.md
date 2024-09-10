@@ -1,4 +1,4 @@
-### **Críticos Inúteis: A Busca Definitiva por RPGs**
+### **Críticos Inúteis: A Busca Definitiva por RPGs - Imersão Dev com Google Gemini**
 
 
 **O que é isso?**
