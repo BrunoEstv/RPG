@@ -1,6 +1,5 @@
-## **README.md Descontraído para o Seu Projeto**
-
 ### **Críticos Inúteis: A Busca Definitiva por RPGs**
+
 
 **O que é isso?**
 
